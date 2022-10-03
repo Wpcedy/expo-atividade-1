@@ -6,7 +6,7 @@ Claudia - 2200267\
 Gabriel - 2201635\
 Gabriela\
 Felipe\
-Gustavo\
+Gustavo - 2201858\
 Michael\
 Sarah Reis - 2200748\
 Stefany Cristina - 2200368\
